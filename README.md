@@ -1,1 +1,1 @@
-# ndependent-Study-Project-2025
+# Independent-Study-Project-2025
